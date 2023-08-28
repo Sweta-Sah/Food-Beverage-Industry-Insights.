@@ -1,4 +1,4 @@
-# Delving-into-Key-Insights-from-CodeX-Market-Survey.
+# Food & Beverage Industry Insights.
 
 Resume Project Challenge #6 conducted by codebasics
 
