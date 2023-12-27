@@ -22,6 +22,9 @@ Result:
 https://www.linkedin.com/posts/sweta-sah-_dataanalysis-marketinginsights-codexchallenge-activity-7086448563680927744-mbcx?utm_source=share&utm_medium=member_desktop
 
 --Attained 3rd Rank
+
+
+
 <img width="538" alt="image" src="https://github.com/Sweta-Sah/Food-Beverage-Industry-Insights./assets/132820867/82cc38d5-509f-4347-84b6-48de0f1e54ec">
 
 
