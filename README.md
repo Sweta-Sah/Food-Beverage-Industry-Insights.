@@ -24,6 +24,8 @@ https://www.linkedin.com/posts/sweta-sah-_dataanalysis-marketinginsights-codexch
 --Attained 3rd Rank
 
 
+<img width="595" alt="image" src="https://github.com/Sweta-Sah/Food-Beverage-Industry-Insights./assets/132820867/cd4ddca3-52d8-47d8-b426-af99513cb759">
+
 
 <img width="538" alt="image" src="https://github.com/Sweta-Sah/Food-Beverage-Industry-Insights./assets/132820867/82cc38d5-509f-4347-84b6-48de0f1e54ec">
 
